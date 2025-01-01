@@ -23,7 +23,7 @@ Her gün yeni bir şey öğrenmek beni heyecanlandırıyor!
 ## İletişim 📫
 
 Birlikte öğrenmek ve gelişmek için:
-- [LinkedIn]([https://linkedin.com/in/veysel-olam-518b8b29b&ved=2ahUKEwiwp_Wp99SKAxXWRfEDHcXaGt4QFnoECBkQAQ&usg=AOvVaw2IigblG2saLXNn2P8UJzlF])
+- [LinkedIn](https://linkedin.com/in/veysel-olam-518b8b29b)
 
 ---
 *"Öğrenmenin yaşı yoktur" 📚*
